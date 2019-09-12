@@ -64,21 +64,18 @@ Like the princes of yore, modern man travels to milder climates for those all im
 
 All this access to the accoutrements of court culture engenders sensibilities and tastes which are accommodating to this mindset. To allow these elite tastes to exist there has to be a cultivation of 'tolerance' as the supreme ethic. The French court tolerated men seeking out other men for same sex relations (Louis XIV did actually try putting the brakes on this). How could it be any different? Let me ask: Who among the elite is going to condemn such abominations when they themselves are engaged in debauchery? Modern man, by the time he has come of age, is likely already familiar with unusual sexual fetishes and has probably pleasured himself to several bizarre fantasy reenactments thanks to the internet (think BDSM, transsexualism, hentai).
 
-![enter image description here](https://github.com/harrygoldblatt/writings/blob/master/buttscrying.png?raw=true)
 
+![enter image description here](https://github.com/harrygoldblatt/writings/blob/master/kurthentai-768x432.jpg?raw=true)
 
-[PIC OF KURT EICHENWALD TANTACLES]
 The way out of these deeply unhealthy behavioral patterns goes through hard moral work, introspection and the abandonment of easy gratification. If you want to get specific we are talking about religion. Not unconnected these concepts that I just mentioned are the permanent subject of jokes and ridicule that the “court jesters” are sanctioned to target. You already know the deputized and authorized jesters of whom I am talking (Colbert, Fallon, Schumer, Kimmel, John Oliver). 
 The moral universe of the media is designed to keep middle class men on a continuous path of over consumption. This consumption apes the luxury and opulence of the palace setting, but without any of duties inherent in the system of nobility such as mutual loyalties. The whole luxury goods consumer experience becomes even shallower when compared to what the noble class had to endure in order to obtain the fruits of the aristocratic life. For instance, take the loot crate unboxing moron here
-![Uploading ![Uploading file..._1adq2srne]()
-..._i9jb43j63]()
 
-[screen cap HOW CAN THEY KEEP MAKING IT MORE EPIC]
 I imagine this bugman goes through the day at a McJob performing some semi technical 'labour' for which he receives a paycheck. Some of this becomes discretionary spending to finance the loot crate. In case you don't know, a 'loot crate' is a gift box of video game/pop culture themed junk that these sorts of man children get excited about and are willing to pay money for. Think of it as giving yourself birthday presents the year round. In comparison, a member of the aristocratic class would have a martial background and a duty to fight - and often be in excellent physical shape. No soy titted bungler salivating in front of the latest garbage installment from JK Rowling need apply. Think about it; as a warrior you were expected to be able to wear and fight in armor. That could be 30 or 40 pounds if you include padding and mail. You were also expected to finance armor, horse, saddles and weapons - Not spend wealth on some God-damned loot crate containing plastic mugs and childish soopah-hero tee shirts.
 A final issue here that gets overlooked is the issue of where one belongs in a hierarchy?
 This is a profound question which requires reflection, self-critique and a willingness to follow the trail set down by providence. Some men are destined for command while others are suited to be faithful lieutenants. Both roles are vital and require leal service. No alpha male can disloyally sacrifice his lieutenant without breaking the bond that keeps natural hierarchy stable. Likewise a subject may not undermine his superior for any self-serving purpose, yet this tactic has become a dominant mode of advancement in the j-infested corporate work environment.
 There is glory to be had in kingship, and there is glory to be had in service to the rightful king. Serving the faceless corporate masters might no doubt be a comfortable or even a lucrative venture, however it is unlikely to achieve any transcendent results whatsoever. Capitalist culture also fails to provide a template for broader societal order since it rewards disloyalty over fealty. Nowhere is this more obvious than in the way capitalism substitutes indigenous workers with foreign labor in blatant disregard to all traditional relationship bonds.   
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEzMTE2ODc1MjVdfQ==
+eyJoaXN0b3J5IjpbLTEyNTM3Nzk2NTEsLTEzMTE2ODc1MjVdfQ
+==
 -->
