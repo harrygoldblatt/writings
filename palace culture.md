@@ -1,14 +1,16 @@
 ---
 
+1 id="palace-culture-degenerPalace Culture Degeneracy</h1>
+<hr>
+<hr>
 
 ---
 
-<hr>
-<h1 id="palace-culture-degeneracy">Palace Culture Degeneracy</h1>
-<hr>
-<hr>
+
 ## Would you rather live as a king in ancient times or a normal person in 21st Century?
-<p>This question was raised on Quora and immediately seized upon by bugmen in possession of only a very limited imagination.</p>
+<p>
+This question was raised on Quora and immediately seized upon by bugmen in possession of only a very limited imagination.</p> 
+
 <hr>
 <hr>
 <hr>
@@ -91,7 +93,11 @@ Like the princes of yore, modern man travels to milder climates for those all im
 </p><p>All this access to the accoutrements of court culture engenders sensibilities and tastes which are accommodating to this mindset. To allow these elite tastes to exist there has to be a cultivation of ‘‘tolerance’’ as the supreme ethic. The French court tolerated men seeking out other men for same sex relations (Louis XIV did actually try putting the brakes on this). And how could it be any different? Let me ask: Who among the elite is going to condemn such abominations when they themselves are engaged in debauchery? Modern man, by the time he has come of age, is likely already familiar with unusual sexual fetishes and has probably pleasured himself to several bizarre fantasy reenactments thanks to the internet (think BDSM, transsexualism, hentai).</p>
 <p></p><p>![enter image description here](<a href="http://github.com/harrygoldblatt/writings/blob/master/kurthentai-768x432.jpg?raw=true">http://github.com/harrygoldblatt/writings/blob/master/kurthentai-768x432.jpg?raw=true</a>" alt=“"enter image description here”&gt;</p>
 ![](kurthentai-768x432.jpg)
-<p><img src="https://github.com/harrygoldblatt/writings/blob/master/kurthentai-768x432.jpg?raw=true" alt="enter image description here"></p>
-<p><img src="https://github.com/harrygoldblatt/writings/blob/master/buttscrying.png?raw=true" alt="enter image description here"></p>
+<p><img src="
+![enter image descriptihttps://github.com/harrygoldblatt/writings/blob/master/kurthentai-768x432.jpg?raw=true" alt="ere"></p>
+<p><img src="](https://github.com/harrygoldblatt/writings/blob/master/buttscrying.png?raw=true" alt="enter image description here"></p>
 <p><img src="https://github.com/harrygoldblatt/writings/blob/master/img/kurthentai-768x432.jpg?raw=true" alt="enter image description here"></p>
-
+)
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbMTM1ODk3OTc3M119
+-->
