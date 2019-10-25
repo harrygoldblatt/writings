@@ -24,7 +24,7 @@ I live way better than a king in ancient times. WAY better. Like, crazy better.<
 </blockquote>
 </blockquote>
 
-
+[enter link description here](https://github.com/harrygoldblatt/writings/blob/master/kurthentai-768x432.jpg?raw=true)
 <p>
 </p><p>
 You don’t even need to go to ancient times. Look at back just under 100 years. When I toured Hearst Castle, the monumentous[sic] property built in 1919 William Randolph Hearst, I felt no envy.</p>
@@ -115,5 +115,6 @@ This is a profound question which requires reflection, self-critique and a willi
 There is glory to be had in kingship, and there is glory to be had in service to the rightful king. Serving the faceless corporate masters might no doubt be a comfortable or even a lucrative venture, however it is unlikely to achieve any transcendent results whatsoever. Capitalist culture also fails to provide a template for broader societal order since it rewards disloyalty over fealty. Nowhere is this more obvious than in the way capitalism substitutes indigenous workers with foreign labor in blatant disregard to all traditional relationship bonds.<br></p>
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQ2NTEwNDg5OSwtMTg3NTYzNTU0OV19
+eyJoaXN0b3J5IjpbLTE1NjE1MzQ2NjIsLTE4NzU2MzU1NDldfQ
+==
 -->
