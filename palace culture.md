@@ -11,7 +11,9 @@
 <p>
 This question was raised on Quora and immediately seized upon by bugmen in possession of only a very limited imagination.</p> 
 
-<hr>
+<hr
+
+> I live way better than a king in ancient times. WAY better. Like, crazy better.
 <hr>
 <hr>
 <hr>
@@ -99,5 +101,5 @@ Like the princes of yore, modern man travels to milder climates for those all im
 <p><img src="https://github.com/harrygoldblatt/writings/blob/master/img/kurthentai-768x432.jpg?raw=true" alt="enter image description here"></p>
 )
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTM1ODk3OTc3M119
+eyJoaXN0b3J5IjpbLTY2ODc3NDIyMiwxMzU4OTc5NzczXX0=
 -->
