@@ -7,7 +7,7 @@
 <hr>
 <hr>
 <hr>
-<p><a href="https://github.com/harrygoldblatt/writings/blob/master/kurthentai-768x432.jpg?raw=true">enter link description here</a></p>
+<p><a href="https/githcomarryoldlatt/writings/blob/te/kurthenti.ratrue[enter link description here](https://github.com/harrygoldblatt/writings/blob/master/kurthentai-768x432.jpg?raw=true">enter link description here</a></p>)
 <p>
 </p><p>
 You don’t even need to go to ancient times. Look at back just under 100 years. When I toured Hearst Castle, the monumentous[sic] property built in 1919 William Randolph Hearst, I felt no envy.</p>
@@ -91,3 +91,6 @@ Like the princes of yore, modern man travels to milder climates for those all im
 </p><p>The way out of these deeply unhealthy behavioral patterns goes through hard moral work, introspection and the abandonment of easy gratification. If you want to get specific we are talking about religion. Not unconnected, these concepts that I just mentioned are the permanent subject of jokes and ridicule that the “court jesters” are sanctioned to target. You already know the deputized and authorized jesters of whom I am talking (Colbert, Fallon, Schumer, Kimmel, John Oliver).<br><br>
 The moral universe of the media is designed to keep middle class men on a continuous path of over consumption. This consumption apes the luxury and opulence of the palace setting, but without any of duties inherent in the system of nobility such as mutual loyalties. The whole luxury goods consumer experience becomes even shallower when compared to what the noble class had to endure in order to obtain the fruits of the aristocratic life. For instance, take the loot crate unboxing moron here<br><br>
 </p>
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbLTMyNzE4OTAxMV19
+-->
