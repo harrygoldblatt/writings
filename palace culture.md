@@ -95,3 +95,6 @@ Like the princes of yore, modern man travels to milder climates for those all im
 The moral universe of the media is designed to keep middle class men on a continuous path of over consumption. This consumption apes the luxury and opulence of the palace setting, but without any of duties inherent in the system of nobility such as mutual loyalties. The whole luxury goods consumer experience becomes even shallower when compared to what the noble class had to endure in order to obtain the fruits of the aristocratic life. For instance, take the loot crate unboxing moron here<br><br>
 </p>
 
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbLTEyMjY4ODIwNTJdfQ==
+-->
