@@ -5,26 +5,9 @@
 
 <hr>
 <hr>
-<h1 id="palacePalace</h1>
-<p>Palace Culture Degeneracy</p>
-<h2 id="would-you-rather-live-as-a-king-in-ancient-times-or-a-normal-person-in-21st-century"># Palace
-</h2><p>
-Palace Culture Degeneracy</p>
-<h2 id="would-you-rather-live-as-a-king-in-ancient-times-or-a-normal-person-in-21st-centuryh2">Would you rather live as a king in ancient times or a normal person in 21st Century?</h2>
-<p>
-</p><p>
-This question was raised on Quora and immediately seized upon by bugmen in possession of only a very limited imagination.</p>
-<blockquote>
-<blockquote>
-<p>
-</p></blockquote></blockquote><blockquote>
-<blockquote>
-<p>
-I live way better than a king in ancient times. WAY better. Like, crazy better.</p>
-</blockquote>
-</blockquote>
-
-[enter link description here](https://github.com/harrygoldblatt/writings/blob/master/kurthentai-768x432.jpg?raw=true)
+<hr>
+<hr>
+<p><a href="https://github.com/harrygoldblatt/writings/blob/master/kurthentai-768x432.jpg?raw=true">enter link description here</a></p>
 <p>
 </p><p>
 You don’t even need to go to ancient times. Look at back just under 100 years. When I toured Hearst Castle, the monumentous[sic] property built in 1919 William Randolph Hearst, I felt no envy.</p>
@@ -107,14 +90,4 @@ Like the princes of yore, modern man travels to milder climates for those all im
 <p>
 </p><p>The way out of these deeply unhealthy behavioral patterns goes through hard moral work, introspection and the abandonment of easy gratification. If you want to get specific we are talking about religion. Not unconnected, these concepts that I just mentioned are the permanent subject of jokes and ridicule that the “court jesters” are sanctioned to target. You already know the deputized and authorized jesters of whom I am talking (Colbert, Fallon, Schumer, Kimmel, John Oliver).<br><br>
 The moral universe of the media is designed to keep middle class men on a continuous path of over consumption. This consumption apes the luxury and opulence of the palace setting, but without any of duties inherent in the system of nobility such as mutual loyalties. The whole luxury goods consumer experience becomes even shallower when compared to what the noble class had to endure in order to obtain the fruits of the aristocratic life. For instance, take the loot crate unboxing moron here<br><br>
-<img src="
-![enter image description here](http://github.com/harrygoldblatt/writings/blob/master/buttscrying.png?raw=true" alt=enter image description here"><br>)<br>
-I imagine this bugman goes through the day at a McJob performing some semi technical ‘‘labour’ for which he receives a paycheck. Some of this becomes discretionary spending to finance the loot crate. In case you don’'t know, a ‘‘loot crate’’ is a gift box of video game/pop culture themed junk that these sorts of man children get excited about and are willing to pay money for. Think of it as giving yourself birthday presents the year round. In comparison, a member of the aristocratic class would have a martial background and a duty to fight - and often be in excellent physical shape. No soy titted bungler salivating in front of the latest garbage installment from JK Rowling need apply. Think about it; as a warrior you were expected to be able to wear and fight in armor. That could be 30 or 40 pounds if you include padding and mail. You were also expected to finance armor, horse, saddles and weapons - Not spend wealth on some God-damned loot crate containing plastic mugs and childish soopah-hero tee shirts.<br><br>
-A final issue here that gets overlooked is the issue of where one belongs in a hierarchy?<br><br>
-This is a profound question which requires reflection, self-critique and a willingness to follow the trail set down by providence. Some men are destined for command while others are suited to be faithful lieutenants. Both roles are vital and require leal service. No alpha male can disloyally sacrifice his lieutenant without breaking the bond that keeps natural hierarchy stable. Likewise a subject may not undermine his superior for any self-serving purpose, yet this tactic has become a dominant mode of advancement in the j-infested corporate work environment.<br><br>
-There is glory to be had in kingship, and there is glory to be had in service to the rightful king. Serving the faceless corporate masters might no doubt be a comfortable or even a lucrative venture, however it is unlikely to achieve any transcendent results whatsoever. Capitalist culture also fails to provide a template for broader societal order since it rewards disloyalty over fealty. Nowhere is this more obvious than in the way capitalism substitutes indigenous workers with foreign labor in blatant disregard to all traditional relationship bonds.<br></p>
-
-<!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1NjE1MzQ2NjIsLTE4NzU2MzU1NDldfQ
-==
--->
+</p>
