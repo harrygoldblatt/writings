@@ -115,5 +115,5 @@ This is a profound question which requires reflection, self-critique and a willi
 There is glory to be had in kingship, and there is glory to be had in service to the rightful king. Serving the faceless corporate masters might no doubt be a comfortable or even a lucrative venture, however it is unlikely to achieve any transcendent results whatsoever. Capitalist culture also fails to provide a template for broader societal order since it rewards disloyalty over fealty. Nowhere is this more obvious than in the way capitalism substitutes indigenous workers with foreign labor in blatant disregard to all traditional relationship bonds.<br></p>
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4NzU2MzU1NDldfQ==
+eyJoaXN0b3J5IjpbLTQ2NTEwNDg5OSwtMTg3NTYzNTU0OV19
 -->
