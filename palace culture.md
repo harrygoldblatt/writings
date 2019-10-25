@@ -1,10 +1,13 @@
 ---
-## Palace Culture Degeneracy
+# Palace Culture Degeneracy
 
 ---
 
 <hr>
-<hr># Would you rather live as a king in ancient times or a normal person in 21st Century?
+## Would you rather live as a king in ancient times or a normal person in 21st Century?
+
+This question was posed on Quora 
+
 <hr>
 <hr>
 <hr>
@@ -105,6 +108,6 @@ Like the princes of yore, modern man travels to milder climates for those all im
 
 ![enter image description here](https://github.com/harrygoldblatt/writings/blob/master/img/kurthentai-768x432.jpg?raw=true)
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzE1MTI0MDcxLDEyNjcwOTI5ODksMzExOD
-AzNDA4LC0xMjI2ODgyMDUyXX0=
+eyJoaXN0b3J5IjpbMTg3MjEzMDIyNCwxMjY3MDkyOTg5LDMxMT
+gwMzQwOCwtMTIyNjg4MjA1Ml19
 -->
