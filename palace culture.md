@@ -118,9 +118,7 @@ I imagine this bugman goes through the day at a McJob performing some semi techn
 A final issue here that gets overlooked is the issue of where one belongs in a hierarchy?<br>
 This is a profound question which requires reflection, self-critique and a willingness to follow the trail set down by providence. Some men are destined for command while others are suited to be faithful lieutenants. Both roles are vital and require leal service. No alpha male can disloyally sacrifice his lieutenant without breaking the bond that keeps natural hierarchy stable. Likewise a subject may not undermine his superior for any self-serving purpose, yet this tactic has become a dominant mode of advancement in the j-infested corporate work environment.<br>
 There is glory to be had in kingship, and there is glory to be had in service to the rightful king. Serving the faceless corporate masters might no doubt be a comfortable or even a lucrative venture, however it is unlikely to achieve any transcendent results whatsoever. Capitalist culture also fails to provide a template for broader societal order since it rewards disloyalty over fealty. Nowhere is this more obvious than in the way capitalism substitutes indigenous workers with foreign labor in blatant disregard to all traditional relationship bonds.<br>
-<a href="palace_culture">   
-[enter link description here</a></p>
-](palace_culture)
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTE1MjEzODEwXX0=
+eyJoaXN0b3J5IjpbLTg1Nzc0MjI2OSw5MTUyMTM4MTBdfQ==
 -->
