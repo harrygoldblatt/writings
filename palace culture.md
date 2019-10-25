@@ -1,19 +1,19 @@
 ---
-# Palace Culture Degeneracy
+
 
 ---
 
 <hr>
+<h1 id="palace-culture-degeneracy">Palace Culture Degeneracy</h1>
+<hr>
+<hr>
 ## Would you rather live as a king in ancient times or a normal person in 21st Century?
-
-This question was posed on Quora 
-
+<p>This question was raised on Quora and immediately seized upon by bugmen in possession of only a very limited imagination.</p>
 <hr>
 <hr>
 <hr>
 <hr>
-
-You don’t even need to go to ancient times. Look at back just under 100 years. When I toured Hearst Castle, the monumentous[sic] property built in 1919 William Randolph Hearst, I felt no envy.</p>
+<p>You don’t even need to go to ancient times. Look at back just under 100 years. When I toured Hearst Castle, the monumentous[sic] property built in 1919 William Randolph Hearst, I felt no envy.</p>
 <p>
 </p><p>
 He got news from around the world, but only because he had newspapers flown in. I get instant world news in my pocket.</p>
@@ -91,23 +91,7 @@ Like the princes of yore, modern man travels to milder climates for those all im
 </p><p>All this access to the accoutrements of court culture engenders sensibilities and tastes which are accommodating to this mindset. To allow these elite tastes to exist there has to be a cultivation of ‘‘tolerance’’ as the supreme ethic. The French court tolerated men seeking out other men for same sex relations (Louis XIV did actually try putting the brakes on this). And how could it be any different? Let me ask: Who among the elite is going to condemn such abominations when they themselves are engaged in debauchery? Modern man, by the time he has come of age, is likely already familiar with unusual sexual fetishes and has probably pleasured himself to several bizarre fantasy reenactments thanks to the internet (think BDSM, transsexualism, hentai).</p>
 <p></p><p>![enter image description here](<a href="http://github.com/harrygoldblatt/writings/blob/master/kurthentai-768x432.jpg?raw=true">http://github.com/harrygoldblatt/writings/blob/master/kurthentai-768x432.jpg?raw=true</a>" alt=“"enter image description here”&gt;</p>
 ![](kurthentai-768x432.jpg)
+<p><img src="https://github.com/harrygoldblatt/writings/blob/master/kurthentai-768x432.jpg?raw=true" alt="enter image description here"></p>
+<p><img src="https://github.com/harrygoldblatt/writings/blob/master/buttscrying.png?raw=true" alt="enter image description here"></p>
+<p><img src="https://github.com/harrygoldblatt/writings/blob/master/img/kurthentai-768x432.jpg?raw=true" alt="enter image description here"></p>
 
-![enter image description here](https://github.com/harrygoldblatt/writings/blob/master/kurthentai-768x432.jpg?raw=true)
-
-
-
-
-
-
-
-
-
-
-![enter image description here](https://github.com/harrygoldblatt/writings/blob/master/buttscrying.png?raw=true)
-
-
-![enter image description here](https://github.com/harrygoldblatt/writings/blob/master/img/kurthentai-768x432.jpg?raw=true)
-<!--stackedit_data:
-eyJoaXN0b3J5IjpbMTg3MjEzMDIyNCwxMjY3MDkyOTg5LDMxMT
-gwMzQwOCwtMTIyNjg4MjA1Ml19
--->
